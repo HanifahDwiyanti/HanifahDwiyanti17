@@ -29,6 +29,11 @@
    - Time management ●●●●
    - Critical thinking ●●●
    - Teamwork ●●●●●
+## Hobbies:
+   - Cooking
+   - Singing
+   - Creating video
+   
 
 
 <br />
